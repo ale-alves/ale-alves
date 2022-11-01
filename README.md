@@ -5,7 +5,6 @@
 ▪ Front End Developer<br /> 
 ▪ Work at Avanade<br /> 
 ▪ Graduated by the Laboratoria<br /> 
-▪ Graduation in Financial Management and Psychopedagogy
  </p>
 
 
